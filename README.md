@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DEVsanchita.
+- 👋 Hi, I’m Sanchita.
 - 📫 How to reach me : majumdarsanchita25@gmail.com
 
 
